@@ -4,5 +4,5 @@ Archive of student works exhibited with the Royal Society of Portrait Painters (
 
 
 ## 📰 Press & Media Coverage
-*   **Official Feature:** [RBA (Royal British Artist) - Star Students](https://theartssociety.org/arts-news-features/rba-star-students)
+*   **Official Feature:** [RBA (Royal Society of British Artist) - Star Students](https://theartssociety.org/arts-news-features/rba-star-students)
 
